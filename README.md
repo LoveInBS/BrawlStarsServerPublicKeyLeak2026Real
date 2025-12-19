@@ -1,0 +1,2 @@
+# BrawlStarsServerPublicKeyLeak2026Real
+:)
